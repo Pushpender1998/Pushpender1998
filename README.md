@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **pushpender.manethiya@gmial.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1z21DJWS7sVkDE43GGNwqmXbnLOfEnMYi/view?usp=sharin](https://drive.google.com/file/d/1z21DJWS7sVkDE43GGNwqmXbnLOfEnMYi/view?usp=haring)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1z21DJWS7sVkDE43GGNwqmXbnLOfEnMYi/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
